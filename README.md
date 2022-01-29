@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NalboneRiccardo
-- 👀 I’m interested in foot, drugs and bad bitches
+- 👀 I’m interested in feet, drugs and bad bitches
 - 🌱 I’m currently learning how to fuck the system
 - 💞️ I’m looking to collaborate on Peppe Fetish
 - 📫 How to reach me Call me papi
